@@ -11,8 +11,7 @@
 
 - 📫 How to reach me **palprajjwal143@gmail.com**
 
-- 📄 Know about my experiences MY RESUME.
-(https://drive.google.com/file/d/12_0i89d7QxoJyZGNTsd1kBVx-hZHfoNp/view?usp=sharing)
+- 📄 Know about my experiences MY RESUME.(https://drive.google.com/file/d/12_0i89d7QxoJyZGNTsd1kBVx-hZHfoNp/view?usp=sharing)
 
 - ⚡ Fun fact **I think I can solve any problem.**
 
