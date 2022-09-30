@@ -7,8 +7,6 @@
 
 - 🌱 I’m currently learning **JAVA, SQL, SPRING.**
 
-- 👨‍💻 All of my projects are available at [my Portfolio.](prajjwalportfoliolink.netlify.app)
-
 - 📫 How to reach me at my **www.palprajjwal143@gmail.com.**
 
 - 📄 Know about my experiences [MY RESUME.](https://drive.google.com/file/d/12_0i89d7QxoJyZGNTsd1kBVx-hZHfoNp/view?usp=sharing)
