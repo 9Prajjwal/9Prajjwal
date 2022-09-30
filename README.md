@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [prajjwalpalportfolio.netlify.app](prajjwalpalportfolio.netlify.app)
 
-- 📫 How to reach me **palprajjwal143@gmail.com**
+- 📫 How to reach me at my [mail.](www.palprajjwal143@gmail.com)
 
 - 📄 Know about my experiences [MY RESUME.](https://drive.google.com/file/d/12_0i89d7QxoJyZGNTsd1kBVx-hZHfoNp/view?usp=sharing)
 
