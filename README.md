@@ -7,6 +7,8 @@
 
 - 🌱 I’m currently learning **JAVA, SQL, SPRING.**
 
+- 📫 Reach me in [LinkedIn.](https://www.linkedin.com/in/prajjwal-pal-13658112a/)
+
 - 📫 How to reach me at my **www.palprajjwal143@gmail.com.**
 
 - 📄 Know about my experiences [MY RESUME.](https://drive.google.com/file/d/12_0i89d7QxoJyZGNTsd1kBVx-hZHfoNp/view?usp=sharing)
